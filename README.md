@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Jonah-Ferguson
+- 👀 I’m interested in electronics deisgn
+- 🌱 I’m currently studying Electrical Engineering
+- 📫 How to reach me: fergujm@mail.uc.edu
